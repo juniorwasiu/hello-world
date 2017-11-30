@@ -1,4 +1,4 @@
 # hello-world
-just helloworld tutorial
 
-am jun sul and i like contest but this is my first contest for real 
+Hello Sugar Labs my name is junsul and if your reading this message that because have completed it thanks.
+ 
